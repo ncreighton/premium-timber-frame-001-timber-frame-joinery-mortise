@@ -1,0 +1,2 @@
+# premium-timber-frame-001-timber-frame-joinery-mortise
+Stop losing track of your Timber Frame joinery specs, mortise dimensions, and peg schedules scattered across sticky notes and sketchbooks — this Notion Hub centralizes every detail so you can focus on crafting, not searching.  This template is the first all-in-one system purpose-built for Timber Frame joiners and mortise peg artisans. It replaces m
